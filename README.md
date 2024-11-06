@@ -1,1 +1,1 @@
-# Kh-a-Lu-n
+# Khóa Luận
